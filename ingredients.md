@@ -1,4 +1,4 @@
-# Ingredients for Lava Cake
+# Ingredients for Choco Lava Cake
 1. 135 Gram Dark chocolate
 2. 95 gram Butter
 3. 100 gram Sugar

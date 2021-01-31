@@ -1,4 +1,4 @@
-# How to make lava cake?
+# How to make Choco lava Cake?
 
 1. Pre heat the oven at 200 degrees.
 2. In a microwaveable bowl add chocolate and butter. Melt it.
